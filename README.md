@@ -30,7 +30,7 @@
 ![image](https://github.com/user-attachments/assets/5f422b8a-99db-4698-87c9-d06490cf5d4d)
 
 ##  优惠码
-限于时效性，最新优惠码，询问在线客服即可获得。
+8折优惠 ZZSJ2025 限于时效性，最新优惠码，询问在线客服即可获得。
 ##  套餐详情介绍
 
 
